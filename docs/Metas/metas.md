@@ -1,6 +1,6 @@
 # **Objetivos** 
 
-## **Estágiar na àrea de informática**
+## **Estagiar na àrea de informática**
 ![estagio](https://i.pinimg.com/736x/40/30/5d/40305d05603bd0c4e2809c01bfd30997.jpg)
 
 ## **Melhorar o nível de inglês**
